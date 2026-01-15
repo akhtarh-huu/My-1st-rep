@@ -1,2 +1,2 @@
-# My-1st-rep
-my new one
+# My-1st-repositry
+my new one and 1st one
